@@ -1,0 +1,9 @@
+- 👋 Hi, I’m Mattia Meneghin from Treviso, Italy
+- 👀 I’m interested in sports, bodybuilding, Djing and informatics
+- 📚 I’m currently studying @ UNITN Informatics Engineering
+- 📫 How to reach me: MAIL:meneghinmattia1@gmail.com, TELEGRAM:@matk99
+- 👤 You can find me on socialnetworks like: 
+- INSTAGRAM:  https://www.instagram.com/mattiameneghin/
+- FACEBOOK:   https://www.instagram.com/mattiameneghin/
+- LINKEDIN:   https://www.linkedin.com/in/mattia-meneghin-870812192/
+- TWITTER:    https://twitter.com/MeneghinMattia (not much used)
